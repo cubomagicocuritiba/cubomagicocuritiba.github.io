@@ -1,0 +1,1 @@
+# cubomagicocuritiba.github.io
